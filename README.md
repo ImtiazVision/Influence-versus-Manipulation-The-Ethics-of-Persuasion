@@ -7,4 +7,4 @@
 
 ### Manipulating 
 
-**Manipulation**: is the act of persuading someone of a conclusion without regard for their emotions.
+**Manipulation**: is the act of persuading someone of a conclusion without regard for their emotions as in how they feel about it or how it affects them.
